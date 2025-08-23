@@ -1,6 +1,6 @@
 
 
-# rinscomputer
+# wooooooollll
 HAII!! c+h freely or cover me freely , unless cuddles obviously !!
 
 ALWAYS INTERACT WITH ME IM VERY FRIENDLY!! 
