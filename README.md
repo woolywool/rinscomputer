@@ -1,14 +1,15 @@
+![17566201615494812646934062530269](https://github.com/user-attachments/assets/45afea16-22f3-4ece-b6e6-ca5f371a61c3)
 
+# Read before you interact!
 
-# wooooooollll
-HAII!! c+h freely or cover me freely , unless cuddles obviously !!
+# hello! im a extremely sensitive person, i have hypersensitivity , please iwec and iwecare. 
 
-ALWAYS INTERACT WITH ME IM VERY FRIENDLY!! 
+# i also have crowd sensitivity please dont push me into crowds .
 
-CALL ME UH RIN OR WOOL I PREFER BOTH!!!
-any nicknames especially fictionkins 
-HYPERSENSITIVITY + SCIZOPHRENIA SO IWEC OR IWCARE!!
-i speak Japanese and english but i come from uk / scotland!! 
-im genderfluid ((she/he/they // any prns!)) , i mostly go by she/he !! 
+# i have severe depression, thoughts of su!cide and more if you ever see me zoning out or not talking please whisp me to interact , 
 
-TS IS ALL BUH BAY!
+# try talking with me about how i feel , cover me when im upset , or if you want to be covered please ask, idm!
+
+## proshippers/darkships, pdf files, weirdos DNI!! i block freely. ^_^
+
+## bai bai have a great day!
